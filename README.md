@@ -7,5 +7,4 @@
 注意是软件包，没有源码
 需要可+vx群 
 也可以进群交流使用心得
-![IMG_8708](https://user-images.githubusercontent.com/24582880/164979656-99b7184d-b54f-4517-980d-dd9edeefffb6.png)
-
+![微信图片_20220502145940](https://user-images.githubusercontent.com/24582880/166196376-d6edb764-182f-48b2-877c-5f371dd7a49e.jpg)
