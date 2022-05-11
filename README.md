@@ -8,4 +8,5 @@ tiktok、抖音推流获取
 注意是软件包，没有源码
 需要可+vx群 
 也可以进群交流使用心得
-![Uploading 微信图片_20220511101514.jpg…]()
+
+![微信图片_20220511101514](https://user-images.githubusercontent.com/24582880/167755441-e8e284b8-aebd-4208-8126-9a30f2e657a9.jpg)
