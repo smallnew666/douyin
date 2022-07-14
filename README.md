@@ -8,4 +8,5 @@ tiktok、抖音推流获取
 需要可+vx群 
 也可以进群交流使用心得
 
-![微信图片_20220602094303](https://user-images.githubusercontent.com/24582880/171529390-761a9799-7a18-4733-9d33-97160d79d7ca.jpg)
+
+![微信图片_20220714154628](https://user-images.githubusercontent.com/24582880/178930015-281bb1c4-d873-4281-a112-b10e5237906e.jpg)
